@@ -1,0 +1,1 @@
+# Yetgen2.haftaEGitimoncesi
